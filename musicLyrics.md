@@ -1,4 +1,6 @@
 ---
+##1
+
 Look
 If you had
 One shot
@@ -7,6 +9,7 @@ To seize everything you ever wanted
 In one moment
 Would you capture it
 Or just let it slip?
+
 Yo
 His palms are sweaty, knees weak, arms are heavy
 There's vomit on his sweater already, mom's spaghetti
@@ -24,10 +27,12 @@ It don't matter, he's dope, he knows that, but he's broke
 He's so stagnant, he knows, when he goes back to this mobile home, that's when it's
 Back to the lab again, yo, this whole rhapsody
 Better go capture this moment and hope it don't pass him
+
 You better lose yourself in the music, the moment
 You own it, you better never let it go
 You only get one shot, do not miss your chance to blow
 This opportunity comes once in a lifetime
+
 You better lose yourself in the music, the moment
 You own it, you better never let it go
 You only get one shot, do not miss your chance to blow
