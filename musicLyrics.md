@@ -38,34 +38,42 @@ You own it, you better never let it go
 You only get one shot, do not miss your chance to blow
 This opportunity comes once in a lifetime
 You better
+
 ---
 ##2
 
 We are, we are, we are
+
 L.A. on a Saturday night in the summer
 Sundown and they all come out
 Lamborginis and their rented Hummers
 The party's on, so they're headin' downtown
+
 Everybody's lookin' for a come up
 And they wanna know what you're about
 Me in the middle with the one I'm lovin'
 We're just tryna figure everything out
+
 We don't fit in well
 'Cause we are just ourselves
 I could use some help
 Gettin' out of this conversation, yeah
+
 You look stunning, dear
 So don't ask that question here
 This is my only fear, that we become (hey)
+
 Beautiful people
 Drop top, designer clothes
 Front row at fashion shows
 "What d'you do?" and "Who d'you know?"
 Inside the world of beautiful people
+
 Champagne and rolled-up notes
 Prenups and broken homes
 Surrounded, but still alone
 Let's leave the party
+
 That's not who we are
 (We are, we are, we are)
 We are not beautiful
